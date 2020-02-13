@@ -1,1 +1,1 @@
-# BenjaminJowett
+# Benjamin Jowett connections
